@@ -1,2 +1,0 @@
-# Eros litora lacinia
-

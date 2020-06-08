@@ -1,2 +1,0 @@
-## Luctus nulla semper
-
